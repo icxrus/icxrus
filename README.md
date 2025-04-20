@@ -1,4 +1,13 @@
-## Hi there 👋
+## Storyteller. Programmer. Designer. Knowledge Sponge.
+
+That's me in a nutshell. Hello, I'm Emilia 👋
+
+I'm passionate about immersive and engaging storytelling and gameplay. 
+
+
+I've been fascinated by stories and storytelling since I was a child and have been playing video games since I was 9.
+I spent my time working on my skills as a game developer, playing games, reading and writing stories.
+
 
 <!--
 **icxrus/icxrus** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
