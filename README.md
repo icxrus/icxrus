@@ -2,7 +2,7 @@
 
 That's me in a nutshell. Hello, I'm Emilia 👋
 
-I'm passionate about immersive and engaging storytelling and gameplay. 
+I'm passionate about crafting immersive, engaging storytelling and gameplay experiences.
 
 
 I've been fascinated by stories and storytelling since I was a child and have been playing video games since I was 9.
